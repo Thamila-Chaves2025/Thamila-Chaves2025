@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="161" src="![WhatsApp Image 2026-03-30 at 21 47 09](https://github.com/user-attachments/assets/163f5bf1-1d16-4636-9671-8de1c9332001)
+<img align="right" height="161" (https://github.com/user-attachments/assets/163f5bf1-1d16-4636-9671-8de1c9332001)
 "  />
 
 ###
